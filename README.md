@@ -1,4 +1,4 @@
-# Trendyol Siyah Erkek Gömlek
+# Siyah Erkek Gömlek
 
 Siyah erkek gömlekleri, şıklığı ve zarafeti simgeleyen klasik bir parça olarak her erkeğin gardırobunda yer almalıdır. Trendyol'da bulunan geniş siyah erkek gömlek koleksiyonu, farklı stiller ve kesimlerle kullanıcıların beğenisine sunulmaktadır.
 
